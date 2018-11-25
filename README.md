@@ -23,7 +23,6 @@ www.youtube.com/imtiazkhandoker
 Facebook Page :
 www.facebook.com/Imtiaz.Khandoker
 E-mail :
-wetopit.help@gmail.com
-
+czar.imtiaz@gmail.com
 Thank You,
 Imtiaz Khandoker
